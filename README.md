@@ -1,2 +1,3 @@
 # hello-world
-Doing the tutorial
+
+OH MY THIS IS AMAZING! IM USING THE GITHUBS!. TALKING IN CAPS IS AMAZING TOO!
